@@ -1,3 +1,4 @@
+![IMG_7406](https://github.com/user-attachments/assets/c2545f1f-80d9-4161-a2f9-6fece4f1cef4)
 # A.iartoftheday-
 A.i Art .once a day started by Michael Paulino July 30 2025
 ![IMG_7363](https://github.com/user-attachments/assets/6efd59ce-2bcf-4a0a-ae63-3d6b2dc4cd5e)
