@@ -6,3 +6,5 @@ A.i Art .once a day started by Michael Paulino July 30 2025
 ![IMG_7363](https://github.com/user-attachments/assets/6efd59ce-2bcf-4a0a-ae63-3d6b2dc4cd5e)
 ![IMG_7402](https://github.com/user-attachments/assets/8a3a1eda-1bb3-405e-8884-2b92930489bf)
 july 31+2025
+August first a.inart of the day by Giz A.i 
+![IMG_7487](https://github.com/user-attachments/assets/140c0333-25f0-467f-91bd-60cb7ce85050)
