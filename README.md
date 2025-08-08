@@ -12,3 +12,6 @@ august 7 2025
 ![IMG_7534](https://github.com/user-attachments/assets/5c89f798-293d-44ff-baf3-6789c181215a)
 <img width="1668" height="2388" alt="IMG_7533" src="https://github.com/user-attachments/assets/810b16f3-6a6f-40da-83ab-d8812a6ac5b1" />
 ![IMG_7535](https://github.com/user-attachments/assets/eac4273e-1279-490b-a536-371457ca7832)
+august 8 2025 
+<img width="2388" height="1668" alt="IMG_7560" src="https://github.com/user-attachments/assets/82e98794-dfe5-4fbe-9ac2-557705e35961" />
+![IMG_7559](https://github.com/user-attachments/assets/7debd6e3-3175-475b-890d-dc0c656cffd3)
