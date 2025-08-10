@@ -15,3 +15,5 @@ august 7 2025
 august 8 2025 
 <img width="2388" height="1668" alt="IMG_7560" src="https://github.com/user-attachments/assets/82e98794-dfe5-4fbe-9ac2-557705e35961" />
 ![IMG_7559](https://github.com/user-attachments/assets/7debd6e3-3175-475b-890d-dc0c656cffd3)
+august 10 2025 
+![IMG_7596](https://github.com/user-attachments/assets/4ed023ae-1817-49c3-8d67-5f3de5183d65)
