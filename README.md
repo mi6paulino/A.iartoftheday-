@@ -19,3 +19,5 @@ august 8 2025
 august 10 2025 
 ![IMG_7596](https://github.com/user-attachments/assets/4ed023ae-1817-49c3-8d67-5f3de5183d65)
 august 22 2025 using https://deepai.org/machine-learning-model/text2img
+https://www.craiyon.com/en
+2/27/2026![IMG_9559](https://github.com/user-attachments/assets/35bb05cd-11ce-43de-8912-1aaa8c1f406d)
